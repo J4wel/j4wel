@@ -15,3 +15,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalways in afk, write in private messages!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤW2I & C+H & CD
+
+<img width="3135" height="879" alt="Без названия1979_20250729221937" src="https://github.com/user-attachments/assets/df97662a-86ac-403a-ad02-b080171dcba4" />
