@@ -1,7 +1,6 @@
  <img width="3135" height="879" alt="Без названия1979_20250729195029" src="https://github.com/user-attachments/assets/369263e3-51b8-496b-81f5-f6c42563a3eb" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- @j4wel ![nup35k](https://github.com/user-attachments/assets/ed087444-d891-4e01-a210-163e0f0cfc46)
- jewwel or lisa ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ @j4wel ✧ jewwel or lisa ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  ────(｡>ㅅ<｡)────    
