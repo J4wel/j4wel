@@ -18,3 +18,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝐖𝟐𝐈 &amp; 𝐂+𝐇 &amp; 𝐂𝐃
 <img width="3135" height="879" alt="Без названия1979_20250729221937" src="https://github.com/user-attachments/assets/df97662a-86ac-403a-ad02-b080171dcba4" />
+
+
+![cd4addb03dbfb01b2fe3072990e42ea6](https://github.com/user-attachments/assets/9f6752cd-5c23-447d-9148-407bedfcb006)
