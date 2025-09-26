@@ -22,4 +22,3 @@
 ![3e74571bb11aa7c13a38076291436196](https://github.com/user-attachments/assets/b04e6a96-c9ad-439f-89d2-a4fc57a1a472)
 
 
-ruby -e "$(curl -fsSL https://raw.githubusercontent.com/Homebrew/install/master/install)"
